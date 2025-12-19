@@ -1,1 +1,1 @@
-This is the codes that i learn maybe not fully understand but ill keep going
+Pwede po kayo mag bigay ng comment or pin point ang mga mali ko po Thank you
